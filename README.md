@@ -1,0 +1,5 @@
+- I'm Laudi
+- interested in learning code
+- gaming addiction
+- discord: laudi#0001
+- exploring the ponderities
